@@ -1,0 +1,8 @@
+# bewuzt-crimes-against-humanity
+2014-2021
+
+# zorgverzekering
+https://nl.wikipedia.org/wiki/Zorgverzekering_(Nederland)
+
+# liquidatie
+https://nl.wikipedia.org/wiki/Liquidatie_(moord)
